@@ -1,1 +1,1 @@
-Sistem ini akan diatur ulang
+Sistem ini akan diatur ulang secara menyeluruh.
